@@ -6,17 +6,17 @@ Me and my family has been in New Zealand for over 10 years now **(soon to be 11 
 I have two sibilings, both older and younger. My older brother, 21 (turning 22 in April) goes to UOA, while my younger sister (13) studies at Mission Heights Junior College. I was born in the Philippines in Makati City near the Capital City of the Philippines Manila. 
 ---
 
-**Where is your family comes from**  
+**Where is your family from**  
 My family comes from the Philippines.
 **Where were you born?**  
 I was born in the Philippines.  
 **What languages (besides English) you speak at home?**  
-_I can speak Tagalog but with a mixed of English._
+_I can speak Tagalog and English._
 ---
 
 **My Interests**  
 What do you like to do when you are not at school? e.g.  
-I enjoy watching a lot of basketball, talking to friends through Discord and other forms of communication as well as watching football. I've started to become invested into football and now have a team to support, which is Chelsea, Barcelona and RB Leipzig in the Top 3 Leagues of Football. I also enjoyed coding last year, especially using HTML & CSS. Finally, I also like researching about topics I want to learn about like geopolitics and so on.
+I enjoy watching a lot of basketball, talking to friends through Discord and other forms of communication as well as watching football. I've started to become invested into football and now have a team to support, which is Chelsea, Barcelona and RB Leipzig in the Top 3 Leagues of Football. I also enjoyed coding last year, especially using HTML & CSS. Finally, I also like researching about topics I want to learn about like geopolitics and so on. I also gym a lot.
 ---
 
 
