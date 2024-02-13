@@ -9,7 +9,7 @@ I have two sibilings, both older and younger. My older brother, 21 (turning 22 i
 **Where is your family comes from**  
 My family comes from the Philippines.
 **Where were you born?**  
-I was born in the Philippines.
+I was born in the Philippines.  
 **What languages (besides English) you speak at home?**  
 _I can speak Tagalog but with a mixed of English._
 
