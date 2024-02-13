@@ -12,7 +12,7 @@ My family comes from the Philippines.
 I was born in the Philippines.  
 **What languages (besides English) you speak at home?**  
 _I can speak Tagalog but with a mixed of English._
-
+---
 
 **My Interests**  
 What do you like to do when you are not at school? e.g.  
